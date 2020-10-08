@@ -9,4 +9,4 @@ If you really want high quality boba go to Taiwan cause thats were the good boba
 Share tea is pretty good in Cerritos and Meet fresh, but their shaved ice is honestly better than their boba. 
 Also if you like pandas you should go get a panda squishmellow from amazon. You should also invest in the pandas the sell at daiso and go to the zoo alot. 
 Also but some bamboo in your room like me so that your panda stays with you at all times (I'm serious about this I actually have bamboo in my room :)
-!(Screenshot){Screenshot2020-10-01 at 8.10.05 PM}
+!(Screenshot){Screen Shot 2020-10-01 at 8.10.05 PM.png}
