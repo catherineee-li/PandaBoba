@@ -22,7 +22,8 @@ I think that Pandas should be kept as a household pet and trust me my reasoning 
 - Don't people have dogs 
 - A panda is just a cuter version of a dog
 - They will scare off robbers 
-
+![PandaPicture] (
+[PandaPicture](https://www.pinterest.com/pin/579838520759985465/)
 ### Boba
 Now I think that boba stores should be in replacement of every beverage stores cause Boba is just delicious
 or people should just have a boba store in their house that would be even better. I think Boba needs to be introduced to everyone around the world cause it's that important and you literally cannot live without it. 
