@@ -22,7 +22,7 @@ I think that Pandas should be kept as a household pet and trust me my reasoning 
 - Don't people have dogs 
 - A panda is just a cuter version of a dog
 - They will scare off robbers 
-![PandaPicture] (
+![PandaPicture](Screen Shot 2020-10-08 at 11.57.44 AM.png)
 [PandaPicture](https://www.pinterest.com/pin/579838520759985465/)
 ### Boba
 Now I think that boba stores should be in replacement of every beverage stores cause Boba is just delicious
@@ -33,5 +33,6 @@ _reasons_
 - It's good for your digestive system (kinda don't fact check this) 
 - It's also a food and a drink a 2 in 1 
 - And it can help stop coffee addictions :))) 
-
+![PandaPicture](Screen Shot 2020-10-08 at 11.57.44 AM.png)
+[PandaPicture](https://www.ohhowcivilized.com/bubble-tea/)
 **Now I know after reading this you won't be able to stop drinking boba and wanting a pet panda ;)**
