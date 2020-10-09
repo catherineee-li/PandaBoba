@@ -14,16 +14,18 @@ Also but some bamboo in your room like me so that your panda stays with you at a
 ## Pandas
 Pandas are so adorable they are like the cutest bears in existance and no one can deny this
 I think that Pandas should be kept as a household pet and trust me my reasoning is very good and logical
+
 **Reasons**
 - Pandas are cute 
 - Pandas like to play to
 - Don't people have dogs 
 - A panda is just a cuter version of a dog
 - They will scare off robbers 
-![Screenshot](Screen Shot 2020-10-01 at 8.10.05 PM.png)
+
 ### Boba
 Now I think that boba stores should be in replacement of every beverage stores cause Boba is just delicious
 or people should just have a boba store in their house that would be even better. I think Boba needs to be introduced to everyone around the world cause it's that important and you literally cannot live without it. 
+
 _reasons_ 
 - Boba is super healthy 
 - It's good for your digestive system (kinda don't fact check this) 
