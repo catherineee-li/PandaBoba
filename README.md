@@ -10,7 +10,8 @@ Share tea is pretty good in Cerritos and Meet fresh, but their shaved ice is hon
 Also if you like pandas you should go get a panda squishmellow from amazon. You should also invest in the pandas the sell at daiso and go to the zoo alot. 
 Also but some bamboo in your room like me so that your panda stays with you at all times (I'm serious about this I actually have bamboo in my room :)
 
-![Screenshot](Screen Shot 2020-10-01 at 8.10.05 PM.png)
+![PandaBobaImage](Screen Shot 2020-10-01 at 8.10.05 PM.png)
+[PandaBobaImage](https://www.pngitem.com/so/tumblr-transparent/31/)
 ## Pandas
 Pandas are so adorable they are like the cutest bears in existance and no one can deny this
 I think that Pandas should be kept as a household pet and trust me my reasoning is very good and logical
